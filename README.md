@@ -1,0 +1,1 @@
+# paranin-kolay-hali-
